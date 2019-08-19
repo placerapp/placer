@@ -1,4 +1,8 @@
 # placer
 the Placer App repository
 
-pauline suckt dicks
+pauline ist ober cool 
+
+und
+
+niko unterirdisch dumm
